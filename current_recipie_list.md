@@ -3,8 +3,9 @@
 - instant_kidneybönor_ris.md
 - Linsrisotto.md
 - Gräddig tofu pasta (skriv ner receptet)
-- ?
-- ?
+- Skogsgryta (skriv ner recept)
+- Nudeltofu (skriv ner recept)
+- Linssoppa 
 
 
 W. 1
