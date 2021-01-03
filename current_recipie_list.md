@@ -1,11 +1,10 @@
 # Current list
-- kanelsmakande_gryta_med_vitabönor_och_kikärter.md
-- instant_kidneybönor_ris.md
-- Linsrisotto.md
 - Gräddig tofu pasta (skriv ner receptet)
 - Skogsgryta (skriv ner recept)
 - Nudeltofu (skriv ner recept)
 - Linssoppa 
+- bönbiffar-med-svamp-timjansås-o-mos
+- vegan-instant-pot-curry
 
 
 W. 1

@@ -23,4 +23,6 @@ Ingredienser
  
 Hetta upp oljan i tryckkokaren på medelstark värme, lägg i lök och selleri och stek försiktigt några minuter. Rör i dill, kanel, paprika, spiskummin, salt och peppar. Stek ytterligare lite. Häll av bönor och ärter och lägg i dem i grytan. Ös sedan i tomat, linser, bulgur, och rör om.  
 
-Häll i vatten och buljongtärningar och rör runt. Sätt på locket och koka tills högsta tryck uppnåtts enligt tryckkokarens instruktioner. När trycket har nåtts, koka i 15 minuter. Vänta sedan i 20 minuter eller tills trycket släppt av sig själv innan locket tas av.  
+15 minuter high pressure, naturligt tryck utsläpp 20 min.
+
+
