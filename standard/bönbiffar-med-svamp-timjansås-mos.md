@@ -23,3 +23,6 @@
 - 2msk timjan
 - 1 grönsakbuljong tärning
 - 4dl havegrädde
+
+## Instruktioner
+Mix and go! per del
